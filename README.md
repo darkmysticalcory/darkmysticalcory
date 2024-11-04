@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+KENJI ^__^
+Miembro de: @dear_fdc 👾
+Sigue a mi conejo: @hunter_el_conejo 🐰❤
+
 <!--
 **darkmysticalcory/darkmysticalcory** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
